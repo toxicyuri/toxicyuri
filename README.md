@@ -1,6 +1,8 @@
-18 (2004) **len** ISTP 8w7 libra neutral evil
+im usually listening to music so if you ask me what im listening to i might answer with a song! i also hide freely for 15 min to 24 hours most of the times
 
-insult me all you wish, my brain is _too_ smooth, the smoothest there is. your words simply slide right off.
+i use the words yaoi/yuri and fujoshi!!!! i am a proud fujoshi, idc what you think about those terms
+
+> basic dni criteria + if ur looking to roleplay
 
 ![](https://64.media.tumblr.com/ccdd87e409941f430051817b011b621e/94152cface8e71f3-e1/s100x200/4fc42c12d8ce70271b7c2ca5ad467e4c1c57ae44.gifv)
 ![](https://64.media.tumblr.com/f1b71ab10944440c2371610e39598b06/3cc1544b214896ab-b4/s100x200/e6415418ed943d60b6c9bedfe6ef87c3f409369b.pnj)
@@ -26,3 +28,5 @@ insult me all you wish, my brain is _too_ smooth, the smoothest there is. your w
 ![](https://64.media.tumblr.com/d409434c573e976a259d530ad2b7314b/87937eae939ecf7d-e7/s250x400/dc3f8834016c00190a4e99f75d4721f66205b039.gifv)
 ![](https://64.media.tumblr.com/dd8819522e5cfe8b7db8836f4fe53ac4/94152cface8e71f3-6b/s100x200/1f2420ba30694cec0386552579e05fcba53888a3.gifv)
 ![](https://github.com/toxicyuri/toxicyuri/assets/145829240/8284a827-dcf2-4892-a29a-37184476fe18)
+
+insult me all you wish, my brain is _too_ smooth, the smoothest there is. your words simply slide right off.
