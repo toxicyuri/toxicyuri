@@ -1,4 +1,4 @@
-i usually sit w friends and i listen to music almost all the time, so if you ask me what im listening to i might answer with a song! i also hide freely for 15 min to 24 hours if u are being annoying/unfunny <3 if i say something that made you uncomfortable when interacting please let me know! i speak without thinking
+i usually sit with friends and i listen to music almost all the time, so if you ask me what im listening to i might answer with a song! i also hide freely for 15 min to 24 hours if u are being annoying/unfunny <3 if i happen to say something that made you uncomfortable when interacting please let me know! i speak without thinking :P
 
 im also a fujoshi, idc what you think about that word.
 
