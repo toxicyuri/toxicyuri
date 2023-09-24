@@ -1,4 +1,6 @@
-haii :3 
+18 (2004) **len** ISTP 8w7 libra neutral evil
+
+insult me all you wish, my brain is _too_ smooth, the smoothest there is. your words simply slide right off.
 
 ![](https://64.media.tumblr.com/ccdd87e409941f430051817b011b621e/94152cface8e71f3-e1/s100x200/4fc42c12d8ce70271b7c2ca5ad467e4c1c57ae44.gifv)
 ![](https://64.media.tumblr.com/f1b71ab10944440c2371610e39598b06/3cc1544b214896ab-b4/s100x200/e6415418ed943d60b6c9bedfe6ef87c3f409369b.pnj)
