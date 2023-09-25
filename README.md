@@ -1,4 +1,4 @@
-i usually sit with friends and i listen to music almost all the time, so if you ask me what im listening to i might answer with a song! i also hide freely for 15 min to 24 hours if u are being annoying/unfunny <3 if i happen to say something that made you uncomfortable when interacting please let me know! i speak without thinking :P im literally gris from okegom because i also would like to "eat" idate ![](https://64.media.tumblr.com/3e03eddc0281f173a6553698f623ca8b/97c71d0bd943328d-49/s75x75_c1/9f4c9954a2ce55a67d4045e702e0268c3bbacd97.gifv)
+i usually sit with friends and i listen to music almost all the time, so if you ask me what im listening to i might answer with a song! i also hide freely for 15 min to 24 hours if u are being annoying/unfunny <3 if i happen to say something that made you uncomfortable when interacting please let me know! i speak without thinking :P im literally gris from okegom because i also would like to "eat" idate  ![](https://64.media.tumblr.com/bd5abb8bf5bc06c25b3e05094259cdca/f651789587d2564c-8c/s75x75_c1/2d259ed495b6ffb744bcd83cd596db877dbaf5cb.gifv)
 
 im a fujoshi, idc what you think about that word.
 
